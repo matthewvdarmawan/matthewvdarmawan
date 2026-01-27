@@ -1,4 +1,4 @@
-### IT Web-Development & Multimedia Komunikasi
+### Think.Design.Code.
 # Achievements & Experiences
 - 🥇 1st Winner Design Digital Poster - SMAS Kristen 7 BPK PENABUR (2022)
 - 🥉 3rd Winner Design Digital Poster - SMKS Telkom Malang (2024)
